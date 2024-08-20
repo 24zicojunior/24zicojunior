@@ -1,6 +1,6 @@
 ## Bem Vindas ao meu perfil 💜
 
-Meu nome é *Maria Eduarda*
+Meu nome é *Marianna*
 
 - Estou estudando na [Alura](https://www.alura.com.br)
 - Estou me desenvolvendo na linguagem JavaScript
@@ -8,8 +8,8 @@ Meu nome é *Maria Eduarda*
  
   ##  Você entra em contato comigo 📬
 
-  0000113025186xsp@al.educacao.sp.gov.br
+  00001102238107sp@al.educacao.sp.gov.br
 
-  @trindad2_
+  @marixsy_
 
 ![](https://media1.tenor.com/m/Oj-yZs8knpYAAAAd/luan-santana.gif)
