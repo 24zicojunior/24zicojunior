@@ -12,5 +12,5 @@ Meu nome é *Marianna*
 
   @marixsy_
 
-![](https://media1.tenor.com/m/cjfRZCzZvzQAAAAd/disney-beauty-and-the-beast.gif)
+![](https://media1.tenor.com/m/725OTt1EWyUAAAAd/luan-santana.gif)
 
